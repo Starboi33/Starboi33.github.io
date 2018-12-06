@@ -1,2 +1,1 @@
-
-sdadsa
+This is a vbuck scam
